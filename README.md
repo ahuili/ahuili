@@ -26,4 +26,4 @@ Engineer turned AI builder. After years of writing software and leading engineer
 
 #### 📫 Reach me
 
-✉️ [hi@ahuili.me](mailto:hi@ahuili.me) · 📍 Hangzhou / often abroad
+🌐 [ahuili.me](https://ahuili.me) · ✉️ [hi@ahuili.me](mailto:hi@ahuili.me) · 📍 Hangzhou / often abroad
